@@ -4,7 +4,7 @@ made for the Switch lab
 
 Laia Fernández Calvo
 
-Solange Martins
+Maria Solange Martins
 
 Wouter Van Assche
 
